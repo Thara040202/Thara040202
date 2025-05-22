@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to create video games in school
 - 💞️ I’m looking to learn new things
 - 📫 You can reach me through here
-- 😄 Pronouns: She/Her They/Them
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm a big fan of the Final Fantasy series
 
 <!---
